@@ -1,3 +1,2 @@
-https://thumbs.gfycat.com/WholeJampackedCarp-max-14mb.gif
-
+https://camo.githubusercontent.com/f23b4202eaad18ae04122bd3e130f3fc637386655c370ea0496c819d9ea9a481/68747470733a2f2f69302e77702e636f6d2f6d6f656e696d652e7765622e69642f6c6f6c69736973746572312e676966
 anone anone anone
